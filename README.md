@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @li-veindark
-- 👀 I’m interested in gd right now.
-- 🌱 I’m currently learning level designing with unreal engine.
+- 👀 I’m interested in Web-development right now.
+- 🌱 I’m currently learning Full-stack development using Harkirat100Xcohort.
 - 💞️ I’m looking to collaborate on web development projects.
 - 📫 
 

@@ -1,5 +1,5 @@
 
-### 💻 About ME
+#💻 About ME
 
 - 👩🏻 Hola! I'm Akriti. I love bringing my craziest ideas to life through code. Building is my playground!
 - 🛠  I’m currently working on NEXT - SECURE SOLANAWALLET dApp a blockchain based project.

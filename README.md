@@ -1,4 +1,5 @@
-https://github.com/user-attachments/assets/3a4bc69c-62e6-434a-85c0-15b5a1773524
+
+![20250511_2243_Coding at Golden Hour_simple_compose_01jv05bce4e28a6basztcm9q54](https://github.com/user-attachments/assets/9f961cbb-a092-4aa8-bcb4-b4cac003717a)
 
 # 💫 About Me:
 ##  Yo, Code Crafters! I'm Akriti. I love bringing my craziest ideas to life through code. Building is my playground!

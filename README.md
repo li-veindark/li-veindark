@@ -1,5 +1,5 @@
 
-![20250511_2243_Coding at Golden Hour_simple_compose_01jv05bce4e28a6basztcm9q54](https://github.com/user-attachments/assets/9f961cbb-a092-4aa8-bcb4-b4cac003717a)
+![AngryMode-ezgif com-speed](https://github.com/user-attachments/assets/dec56c8b-3859-4cde-9dd3-db3ec7f789ce)
 
 # 💫 About Me:
 ##  Yo, Code Crafters! I'm Akriti. I love bringing my craziest ideas to life through code. Building is my playground!

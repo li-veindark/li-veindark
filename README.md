@@ -1,5 +1,5 @@
+![Gen-4Turbomakehertypeandcoffeehasbarelyvisiblesteamcomingoutfromtheonlycupneargirl3135292998-ezgif com-resize](https://github.com/user-attachments/assets/749028e7-cc5d-41dc-b637-374a9e509c15)
 
-![AngryMode-ezgif com-speed](https://github.com/user-attachments/assets/dec56c8b-3859-4cde-9dd3-db3ec7f789ce)
 
 # 💫 About Me:
 ##  Yo, Code Crafters! I'm Akriti. I love bringing my craziest ideas to life through code. Building is my playground!

@@ -5,9 +5,7 @@
 ##  Yo, Code Crafters! I'm Akriti. I love bringing my craziest ideas to life through code. Building is my playground!
 - 🛠  I’m currently working on NEXT - SECURE SOLANAWALLET dApp a blockchain based project.
 - 🤝 I’m looking to collaborate on AI-powered developer tools or full-stack projects that merge Artificial Intelligence with Web Development     
-- ⚡ Future Projects: 
-  - A book recommendation platform using AI,
-  - A school database system for my father's school — both close to my heart and mission-driven!
+
 
 ---
 
